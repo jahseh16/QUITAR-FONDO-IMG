@@ -1,0 +1,1 @@
+# QUITAR-FONDO-IMG
